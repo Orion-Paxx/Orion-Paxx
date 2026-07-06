@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/30ffea68-43dc-4ce0-9cf2-cb2cb0269c5f" />
+  <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/5fc11893-771e-4f54-a8b7-44849e97ba19" />
 
   <div style="margin:4px 0;">
     <a href="https://hywelxx.straw.page/">STRAWPAGE</a> ⟢
