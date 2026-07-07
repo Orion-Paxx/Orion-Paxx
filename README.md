@@ -4,7 +4,8 @@
 
   <div style="margin:4px 0;">
     <a href="https://osal.straw.page">STRAWPAGE</a> ⟢
-    <a href="https://orion-prime.atabook.org/">SIGN ATA!</a>
+    <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> ✰
+    <a href="https://rentry.co/optimusaster4ever/">RENTRY!</a>
   
     usually in safe but i hop on 18+ sometimes 
     almost always TF area but I visit the blacksmith/docks too
