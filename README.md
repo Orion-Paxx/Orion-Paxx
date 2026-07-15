@@ -9,3 +9,4 @@
   
     usually in safe but i hop on 18+ sometimes 
     almost always TF area but I visit the blacksmith/docks too
+    MY ATA IS BUGGED IM SORRY ILL RESPOND ASAP ToT
