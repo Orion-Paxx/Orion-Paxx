@@ -7,8 +7,7 @@
     <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> ✰
     <a href="https://rentry.co/optimusaster4ever/">RENTRY!</a>
 
-    usually in safe but i hop on 18+ sometimes 
-    
+    usually in safe but i hop on 18+ sometimes  
     almost always TF area but I visit the blacksmith/docks too
     
   
