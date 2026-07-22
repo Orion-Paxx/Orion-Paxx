@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=orion-paxx&style=pixel)
+  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=lightgrey)
 
   
   <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/5fc11893-771e-4f54-a8b7-44849e97ba19" />
