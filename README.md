@@ -11,6 +11,7 @@
 
     usually in safe but i hop on 18+ sometimes  
     almost always TF area but I visit the blacksmith/docks too
+    if i ignore you pls whisper instead i probably just didn't think u were talking to me sorry gng
 
   ![](https://hit.yhype.me/github/profile?account_id=208038584)
     
