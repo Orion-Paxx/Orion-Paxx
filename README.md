@@ -9,7 +9,6 @@
     <a href="https://osal.straw.page">STRAWPAGE</a> ✰
     <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> ✰
 
-
     usually in safe but i hop on 18+ sometimes  
     almost always TF area but I visit the blacksmith/docks too
 
