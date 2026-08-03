@@ -9,8 +9,7 @@
     <a href="https://osal.straw.page">STRAWPAGE</a> ✰
     <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> 
 
-    usually in safe but i hop on 18+ sometimes  
-    almost always TF area but I visit the blacksmith/docks too
+    almost always in 18+ now
     if i ignore you pls whisper instead i probably just didn't think u were talking to me sorry gng
 
   ![](https://hit.yhype.me/github/profile?account_id=208038584)
