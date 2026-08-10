@@ -9,8 +9,9 @@
     <a href="https://osal.straw.page">STRAWPAGE</a> ✰
     <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> 
 
-    almost always in 18+ now
-    if i ignore you pls whisper instead i probably just didn't think u were talking to me sorry gng
+
+prefer to be in 18+ but I'm usually on safe with my friends 
+not really good at responding/talking to people, whispering is the best way to get my attention
 
   ![](https://hit.yhype.me/github/profile?account_id=208038584)
     
