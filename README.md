@@ -1,9 +1,6 @@
   <div align="center">
 
 . ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=1d193b) ໒꒱˚.
-<p>
-  ⭑
-</p>
   <div align="center">
 ˖
 <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/6312213c-e7fb-4951-a9d0-614ab3f6f273" />
