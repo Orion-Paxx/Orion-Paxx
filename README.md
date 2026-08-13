@@ -9,10 +9,7 @@
 <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/6312213c-e7fb-4951-a9d0-614ab3f6f273" />
 
 . ˚. ❝ $\color{#413e69}{\textsf{Go hide,quickly.}}$ $\color{#4f3f66}{\textsf{Don't move.}}$ $\color{#53385c}{\textsf{Don't make a}}$ $\color{#5e3251}{\textsf{sound}}$  $\color{#6b3159}{\textsf{Don't let}}$ $\color{#7a2d59}{\textsf{Optimus Prime}}$ $\color{#802a4d}{\textsf{find you.}}$ ❞ ⋆˙⟡
-<p>
-˖ 
-</p>
- 
+
  <div style="margin:4px 0;">
 <a href="https://osal.straw.page">STRAWPAGE</a> ֶָ֢𖹭 <a href="https://orion-prime.atabook.org/">SIGN ATA!</a>
 
