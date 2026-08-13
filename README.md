@@ -1,6 +1,6 @@
   <div align="center">
 
-. ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=b3153a) ໒꒱˚. 
+. ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=802a4d) ໒꒱˚. 
  &nbsp;
   <div align="center">
 
