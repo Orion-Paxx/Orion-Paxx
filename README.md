@@ -13,8 +13,7 @@
 <a href="https://osal.straw.page">STRAWPAGE</a> ֶָ֢𖹭 <a href="https://orion-prime.atabook.org/">SIGN ATA!</a> 
 
 . ݁₊ ⊹ . ݁˖ . ݁
-
-ㅤㅤㅤㅤㅤㅤㅤ
+ㅤ
 <p>
 <details>
   <summary>DNI</summary>
