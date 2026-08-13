@@ -23,7 +23,8 @@
 Predators/Sexual Abusers - [Pedophiles, Zoophiles, people who act on+support incest/stepcest, rapists etc) For some reason this can be a hot take to some people but I genuinely see these groups as borderline sub-human.
 
 Ableists , Racists , Misogynists, Homophobes/transphobes , right wing extremists (any extremes are bad but this is more prevalent) 
-bwith it) like shit for genuinely no reason , it really doesn't make a difference if I know that other person or not, this doesnt include ppl who are in my dni  shit on them all you like :p
+
+People who treat others(who are clearly not okay with it) like shit for genuinely no reason , it really doesn't make a difference if I know that other person or not, this doesnt include ppl who are in my dni  shit on them all you like :p
 </details>
 <details>
   <summary> 𝐁𝐘𝐈 </summary>
