@@ -1,6 +1,6 @@
   <div align="center">
 
-. ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=802a4d) ໒꒱˚. 
+. ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=a8192f) ໒꒱˚. 
  &nbsp;
   <div align="center">
 
@@ -18,7 +18,7 @@
   . ݁ ₊ ⊹ .  ݁˖  . ݁ ₊  .
 <p>
 <details>
-  <summary>DNI</summary>
+  <summary>𝐃𝐍𝚰</summary>
 
   ### 
 Predators/Sexual Abusers - [Pedophiles, Zoophiles, people who act on+support incest/stepcest, rapists etc) For some reason this can be a hot take to some people but I genuinely see these groups as borderline sub-human.
@@ -27,7 +27,7 @@ Ableists , Racists , Misogynists, Homophobes/transphobes , right wing extremists
 bwith it) like shit for genuinely no reason , it really doesn't make a difference if I know that other person or not, this doesnt include ppl who are in my dni  shit on them all you like :p
 </details>
 <details>
-  <summary> BYI holy yap</summary>
+  <summary> 𝐁𝐘𝐈 </summary>
 
   ### 
   IWC - we do talk about a lot of sensitive topics (sh , addiction , suicide/death , religion [we're atheist if that matters], politics etc) freely, it's not always from personal experience but we can get very chatty about this if it's brought up simply because we're very opinionated on everything,, . Please interrupt us if you're not okay with this! It's not a dealbreaker and we know how to stop.
@@ -35,7 +35,7 @@ bwith it) like shit for genuinely no reason , it really doesn't make a differenc
 </details>
 
 <details>
- <summary> FANDOMS</summary>
+ <summary> 𝐅𝐀𝐍𝐃𝐎𝐌𝐒</summary>
 
   ### 
   Transformers !! (G1, TFO, TFA , Earthspark ,TFP, Bayverse , Armada, beast wars , IDW, rescue bots ) Knockout & Rumble my beloved </3
