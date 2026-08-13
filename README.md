@@ -21,9 +21,6 @@
  
   . ݁ ₊ ⊹ .  ݁˖  . ݁ ₊  .
 
- <p>
-   ㅤㅤ
- </p>
 <p>
 <details>
   <summary>𝐃𝐍𝚰</summary>
